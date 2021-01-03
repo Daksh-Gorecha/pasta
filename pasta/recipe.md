@@ -1,0 +1,1 @@
+get two pans put water in one and pasta sauce in the other. Then put the pan with water put the pasta. Then wait till the pasta is soft and the suace is heated. Now you take the the water out of the pasta. Then you mix the pasta and the sauce then and some salt. The last step is to enjoy.
